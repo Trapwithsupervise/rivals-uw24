@@ -1,4 +1,4 @@
-#  
+#  Personalizado bee swarm simulator script é o melhor bee swarm simulator script com sem tempo de espera e mira silenciosa. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
